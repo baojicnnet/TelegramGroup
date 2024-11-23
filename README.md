@@ -30,7 +30,7 @@
 
 ### ㊙️91香蕉茄子吃瓜视频㊙️：[https://t.me/slash10000](https://t.me/slash10000)
 
-### 机场VPN导航站🛫：[https://jichangvpn.github.io](https://jichangvpn.github.io/)
+### 北穹网址导航站🛫：[https://www.beiqiong.com](https://www.beiqiong.com)
 
 ### Telegram频道群组导航站🎯：[https://tgdh.github.io](https://tgdh.github.io/)
 
